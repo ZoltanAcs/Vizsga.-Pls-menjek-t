@@ -1,2 +1,2 @@
-# Vizsga.-Pls-menjek-t
+# Vizsga.-Pls-menjek-at
 pls. pls. pls.
